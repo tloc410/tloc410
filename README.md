@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @tloc410
+- 👀 Studying Ho Chi Minh University of Technology.
